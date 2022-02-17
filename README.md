@@ -11,4 +11,3 @@ Here are some ideas to get you started:
 💬 Ask me about soemthing likes coding?
 📫 How to reach me:.. *WHATSAPP : 087741098445 / EMAIL : leoari017@gmail.com*
 ⚡ Fun fact: *I really like watching movies..sometimes I play games*
--->
