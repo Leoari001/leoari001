@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-🔭 I’m currently working on ###an independent study at DiCoding Academy
+🔭 I’m currently working on ###an independent study at DiCoding Academy###
 
 🌱 I’m currently learning ###Frontend Backend web
 
